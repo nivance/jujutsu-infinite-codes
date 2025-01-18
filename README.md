@@ -53,6 +53,8 @@ While spins can be obtained through regular gameplay, an effective way to gain a
 
 It is crucial to note that codes often have a limited validity period and may expire, so it's recommended to redeem them as soon as possible.
 
+I may not update the latest codes here in time, but I will update it on [Jujutsu Infinite](https://jujutsuinfinite.im/) in time. If you want to get the latest codes, you can go to the [Jujutsu Infinite](https://jujutsuinfinite.im/) website
+
 **Expired Codes:**
 
 Several codes have expired, including:
