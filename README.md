@@ -1,4 +1,4 @@
-# [Jujutsu Infinite Codes](https://jujutsuinfinite.im/)
+# [Jujutsu Infinite Codes](https://jujutsuinfinite.im/en/codes)
 
 ## Jujutsu Infinite Codes: Mastering Cursed Energy in Roblox
 
